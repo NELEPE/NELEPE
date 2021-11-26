@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Marinescu Ionut!
+- 👀 I’m interested in Web Development!
+- 🌱 I’m currently learning Web Development!
+- 💞️ I’m looking to collaborate on ...
+- 📫 You can reach me on discord(NELEPE KTMS#1915),ionutimv2809@gmail.com
